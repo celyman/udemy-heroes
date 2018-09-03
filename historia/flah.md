@@ -1,0 +1,3 @@
+# Flash 
+### Comic de Flash. La vida del joven Barry Allen se detuvo en el momento en que su madre fue asesinada. El verdadero asesino nunca fue encontrado pero este suceso le inoculó una obsesión forense por develar el misterio que lo encadenó a su trabajo, hasta que un monstruoso rayo cayó muy cerca de él dándole una cualidad especial: correr a una velocidad muy cercana la velocidad de la luz. El deseo por la resolución de los crímenes le invita a usar su poder, pero puede llegar a perder todo lo que tiene a su alrededor por la misma razón.
+![Flash](https://cde.laprensa.e3.pe/ima/0/0/1/3/3/133968.jpg)
